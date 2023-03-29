@@ -1,1 +1,1 @@
-# Tugas-Navigasu-2.0-Fathi-bosqu
+# Tugas-Navigasi-2.0-Fathi-bosqu
